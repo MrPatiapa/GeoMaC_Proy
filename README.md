@@ -5,6 +5,6 @@
 
 **Universidad Nacional Autónoma de México**
 
-**Posgrado en Ingeniería **
+**Posgrado en Ingeniería**
 
 **Posgrado en Exploración y Explotación de Recursos Naturales**
